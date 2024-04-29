@@ -15,6 +15,6 @@ These include the following:
 
 Hopefully, you will find these project documents interesting.
 
-Please don't hesitate to reach out to me at vaidehi.atodaria@torontomu.ca or 647-782-4730 for any further questions, comments, feedback or suggestions.
+Please don't hesitate to reach out to me at vaidehiatodaria8@gmail.com for any further questions, comments, feedback or suggestions.
 
 Atodaria Vaidehi
